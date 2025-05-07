@@ -13,8 +13,6 @@
 
 - 📫 How to reach me **@atreyeeghosh1094@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Va5cysS1NNOmawG_S84aT8dK39aiqXrP/view?usp=drive_link](https://drive.google.com/file/d/1Va5cysS1NNOmawG_S84aT8dK39aiqXrP/view?usp=drive_link)
-
 - ⚡ Fun fact **I speak fluent sarcasm based on my mood**
 
 <h3 align="left">Connect with me:</h3>
